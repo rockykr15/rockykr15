@@ -5,7 +5,7 @@
 
 - 👯 I’m looking to collaborate on **OpenSource Projects**
 
-- 📫 How to reach me **rockykr150498.com**
+- 📫 How to reach me **rockykr150498@gmail.com**
 
 - ⚡ Fun fact **I am funnny.**
 
